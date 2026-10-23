@@ -49,6 +49,7 @@
 * [motherandbaby.com](https://www.motherandbaby.com/baby-names/baby-name-generator/)
 * [mumsnet.com](https://www.mumsnet.com/h/pregnancy-and-baby/baby-names)
 * [mybaby-name.com](https://mybaby-name.com/)
+* [nameawesome.com](https://nameawesome.com/)
 * [nameberry.com](https://nameberry.com/)
 * [namegen.com](https://namegen.com/people/first)
 * [namegenerator.co](https://www.namegenerator.co/real-names/baby-name-generator)
